@@ -1,2 +1,2 @@
 # naimaweb3nft
-# soon
+# soon.
